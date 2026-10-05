@@ -1,0 +1,1 @@
+# 10-scanner-uyazvimostey-1c
